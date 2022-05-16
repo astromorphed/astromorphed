@@ -1,4 +1,4 @@
-Hello! I’m Petra ( @astromorphosis ) 🐸🌈
+Hello! I’m Petra ( @astromorphed ) 🐸🌈
 
 I've got a bachelor's degree in business IT, and am currently in the process of also getting a bachelor's in computer engineering! 💾
 
