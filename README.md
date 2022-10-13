@@ -1,8 +1,4 @@
-Hello! I’m Petra ( @astromorphed ) 🐸🌈
-
-I've got a bachelor's degree in business IT, and am currently in the process of also getting a bachelor's in computer engineering! 💾
-
-Along with keeping up with my uni courses, I'm trying to learn about computer vision and AI in hopes of eventually developing apps geared towards accessibility and learning. 
+Hello! 🐸🌈
 
 You can reach me at hellopetrav @ gmail.com !
 
